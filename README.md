@@ -1,0 +1,1 @@
+# MindGold-SMC-indicator-
